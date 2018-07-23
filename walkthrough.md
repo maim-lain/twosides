@@ -4,6 +4,13 @@
 <br>
 <br>
 
+#### Some notes:
+- This walkthrough avoids bi content, I'll make a separate one for that
+- I haven't ran into any major decisions yet, but I'll create separate route based walkthroughs if that happens
+
+<br>
+<br>
+
 ## The Train - Part 1
 - So hot!
 - Not gonna happen
