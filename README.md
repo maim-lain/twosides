@@ -105,6 +105,8 @@
 - Take that chance
 - Open some more
 - 1206
+- Where is she?
+- I like you
 
 <!---
 
