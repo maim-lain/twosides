@@ -78,10 +78,11 @@
     - 2 (she doesn't actually wake up)
     - Stay and give an excuse
     - 2
-    - Keep chosing 1 -> Stay and give an excuse
+    - Keep chosing 1 until she starts to wake up
+    - Stay and give an excuse
+- (The next two choices don't give the max amount of points, but all the other choices prevent you from seeing the next scene)
 - I was just admiring you
 - Anny, let's not fight..
-- (these choices don't give the most amount of points, but the other choices prevent you from seeing the next scene)
 
 <br>
 <br>
