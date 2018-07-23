@@ -57,15 +57,44 @@
 <br>
 
 ## The Alley
-- She's not going anywhere..
-- I'm her boyfriend
-- Kiss Lindsey
-- Did you get the license..
-- No, I think I hurt something..
-- Put her hand on your dick
-- Boyfriend with benefits?
-- It's not blackmail, I just really like you
-- Pull your dick out
-- Persuade her
-- Touch her too
-- Don't I get a kiss?
+- You lose Bret..
+- Kick Bret
+
+<br>
+<br>
+
+## Apartment
+- Caress your sister
+    - 2
+    - 2
+    - 4
+    - 3
+    - 1
+    - 4
+    - 2
+    - 2
+    - 2 -> 2
+    - 1 -> 1
+    - 2 (she doesn't actually wake up)
+    - Stay and give an excuse
+    - 2
+    - Keep chosing 1 -> Stay and give an excuse
+- I was just admiring you
+- Anny, let's not fight..
+- (these choices don't give the most amount of points, but the other choices prevent you from seeing the next scene)
+
+<!---
+
+fail:
+
+"<Anny> You're right, these things happen and I'm grateful you're here to protect me,"
+  
+"Sorry, my brother, I swear I was just scared, it's been a long time since we've seen each other!",
+  
+"Well, I think over time we'll get used to it,"
+"<Anny> Can we change the subject? I'm a bit uncomfortable"
+  
+"You're right",
+"...",
+
+--->
