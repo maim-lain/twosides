@@ -83,6 +83,28 @@
 - Anny, let's not fight..
 - (these choices don't give the most amount of points, but the other choices prevent you from seeing the next scene)
 
+<br>
+<br>
+
+## Bathroom
+- Jack off
+- Daydream about Lindsey
+- Grab her
+- Tickle
+- Keep chosing 1 until waist choice appears
+- Stroke the waist
+- Rub
+- Stop and stand up
+
+<br>
+<br>
+
+## Apartment - Morning
+- Go to the bathroom
+- Take that chance
+- Open some more
+- 1206
+
 <!---
 
 fail:
