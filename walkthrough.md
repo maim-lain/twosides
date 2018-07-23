@@ -1,4 +1,4 @@
-# Two Sides Walkthrough
+# Two Sides v0.08a Walkthrough 
 [*\~My list of walkthroughs and when they'll be updated\~*](https://www.patreon.com/maimlain)
 
 <br>
