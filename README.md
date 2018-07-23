@@ -4,7 +4,7 @@
 <br>
 <br>
 
-## Train Part 1
+## The Train - Part 1
 - So hot!
 - Not gonna happen
 - Look at the photo again
@@ -15,7 +15,7 @@
 <br>
 <br>
 
-## Train Part 2
+## The Train - Part 2
 - Stay here, I'll see what's going on
 - I'm not going to touch him
 - Keep the pills
@@ -23,7 +23,7 @@
 <br>
 <br>
 
-## Train Part 3
+## The Train - Part 3
 - How do you know these things?
 - Where do you work?
 - Yeah I got a scholarship
@@ -41,19 +41,31 @@
 
 ## Old Station
 - She's not going anywhere..
-I'm her boyfriend.(2r)
-Kiss Lindsey(5r)(-3f,-2d???)
-Did you get the license plate from the car that hit me?(1f)
-No, I think I hurt something when I fell. (Lying)
-Put her hand on your dick
-Boyfriend with benefits?
-It's not blackmail, I just really like you.(3d)
-Pull your dick out
-Persuade her
-Continue
-Give me a handjob, Lindsey.
-Go faster, Lindsey…
-Next
-Touch her too(5r,5d)
-Speed up
-Don't I get a kiss?(2r)
+- I'm her boyfriend
+- Kiss Lindsey
+- Did you get the license..
+- No, I think I hurt something..
+- Put her hand on your dick
+- Boyfriend with benefits?
+- It's not blackmail, I just really like you
+- Pull your dick out
+- Persuade her
+- Touch her too
+- Don't I get a kiss?
+
+<br>
+<br>
+
+## The Alley
+- She's not going anywhere..
+- I'm her boyfriend
+- Kiss Lindsey
+- Did you get the license..
+- No, I think I hurt something..
+- Put her hand on your dick
+- Boyfriend with benefits?
+- It's not blackmail, I just really like you
+- Pull your dick out
+- Persuade her
+- Touch her too
+- Don't I get a kiss?
