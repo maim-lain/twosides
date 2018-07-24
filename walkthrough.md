@@ -227,28 +227,37 @@
 
 ## Home
 - idk
-- Im not going anywhere untill we clear this out(2d,-2f)
-Im not letting you out of my sight(2d,-2f)
-Sure, turn around and cover up(2d,-4f)
-whit all due respect... you are really hot(5f,3r)
-my cousin is a very luck...(3r,3f)
-easy there, there are a few more...
-not yet... Im curious(1d)
-hold her()
-keep holding her
-ok do it!(5r,5d)
-kiss her
-grab boobs(2r)
-pull your dick out
-grab her hand(3r,3d)
-push her further
-rub your dick(1r)
-rub it faster(1r)
-rub it faster(1r)
-rub it faster(1r)
-rub it faster(1r)
-Fuck her?
-
+- I'm not going anywhere
+- I'm not letting you
+- Sure turn around
+- With all due respect
+- My cousin is very lucky
+- Easy there
+- Not yet, I'm curious about something
+- Hold her
+- Keep holding her
+- Ok, do it
+- Grab her
+- Calm down
+- I said calm down
+- I said calm down
+- I said calm down
+- You better calm down
+- Keep choking her
+- Stop choking her
+- Stop
+- I need to teach you a lesson
+- I'm spanking your hot ass
+- Hit her 20 times
+- Beg
+- Now I'm going to do..
+- I'll be gentle
+    - Fast
+    - Slow
+    - ?
+    - ?
+    - ?
+- I'm better than Tommy
 
 fail:
 
