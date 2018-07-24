@@ -142,6 +142,43 @@
 - Exit
 - Locales -> Leyla's house
 
+<br>
+<br>
+
+## Leyla's House
+- I'd like to but I need to save money
+- Of course
+- Not one like yours
+
+<br>
+<br>
+
+## C.A.D.E.
+- Choose any (#1 gives the most interesting response)
+- I want this
+
+<br>
+<br>
+
+## Bathroom
+- Masturbate
+- Stick your fingers in
+
+<br>
+<br>
+
+## C.A.D.E.
+- Yes!
+- Permitir
+- It's better we stop now
+- I've always been curious..
+- Seduce her
+- Strip her down
+- You are beautiful
+- Kiss her
+- Suck her tits
+- Caress her pussy
+- Slide down kissing her belly
 
 <!---
 
