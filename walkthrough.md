@@ -4,6 +4,8 @@
 <br>
 <br>
 
+[**Two Sides - Bug Fix Patch by Maim Lain**](https://github.com/maim-lain/twosides/blob/master/bugfixes.md)
+
 #### Some notes:
 - This walkthrough avoids bi content (I'll make a separate one for that), but makes the best possible choices for getting all the other types of content in the game
 - I haven't ran into any decisions yet, but I'll create separate route based walkthroughs if needed
@@ -113,7 +115,7 @@
 - Open some more
 - 1206
 - Where is she?
-- I like you
+- Of course I like you
 
 <!---
 
