@@ -14,7 +14,7 @@
 <br>
 
 ## Changelog:
-- On day 2 in the morning, choosing 'Of course I like you' when talking to Lindsey unlocks a scene if her romance is greater than 25. However it's impossible to have a romance higher than 24 at that point in the game. I've changed the requirement to 24 so it's actually possible to get the scene. You still have to make zero mistakes to have 24 romance, so if you're having trouble follow the walkthrough.
+- On day 2 in the morning, choosing 'Of course I like you' when talking to Lindsey unlocks a scene if her romance is greater than 25. However it's impossible to have a romance higher than 24 at that point in the game. I've changed the requirement to 24 so it's actually possible to get the scene. You still have to make zero mistakes to have 24 romance so if you're having trouble follow the walkthrough.
 
 <br>
 
