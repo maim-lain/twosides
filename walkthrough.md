@@ -37,9 +37,9 @@
 ## The Train - Part 3
 - How do you know these things?
 - Where do you work?
-- Yeah I got a scholarship
+- Yeah I got a scholarship..
 - Right now I'm only interested in you
-- I rented an apartment
+- I rented an apartment..
 - Good, I can see you more often
 - Are you saying you don't..
 - All right, young lady..
@@ -118,6 +118,30 @@
 - 1206
 - Where is she?
 - Of course I like you
+- Browse Anny's photos
+- I have to find out more about this
+- Aunt Leyla
+- Jenny
+    - View Jenny's profile (this causes you to re-read the last message, so just turn on fast skip then turn it off)
+    - Continue
+    - Continue reading
+    - Continue
+    - Back
+- Jimmy
+    - Optional: View Jimmy's profile (this also causes you to re-read the last message)
+    - Write down Jimmy's number
+    - Back
+- Ashley
+    - Unblock Ashley
+    - Read conversation
+    - Continue reading
+    - Continue reading
+    - Write down Ashley's number
+    - View Ashley's profile
+    - Block Ashley and come back
+- Exit
+- Locales -> Leyla's house
+
 
 <!---
 
