@@ -67,7 +67,7 @@
 <br>
 <br>
 
-## The Alley
+## Alley
 - You lose Bret..
 - Kick Bret
 
@@ -180,7 +180,75 @@
 - Caress her pussy
 - Slide down kissing her belly
 
+<br>
+<br>
+
+## Alley
+- You can choose whatever you want for this section, there's a few different ways to play it
+    - Fuck off creep -> No scenes
+    - Be submissive to creep -> Scene with creep
+    - Be submissive to creep at first, then call for help, then flirt with Bret -> Scene with Bret
+    - Be submissive to creep at first, then call for help, then ditch Bret -> No scenes
+- (I'll be doing #4 below)
+- Ok but only if..
+    - Some scenes with creep: Let him go on -> Ok.. -> No way! -> Please, no!
+    - No scenes with creep: Please, no!
+- Cry
+- Just watch
+- Bail
+
+<br>
+<br>
+
+## The Park
+- Call Ashley
+- Alright I'll do it
+- Alright
+
+<br>
+<br>
+
+## Home
+- We're siblings don't worry about that
+- We can pretend I am your boyfriend
+- Who's Jenny?
+- So introduce me to her
+- Does she have a brother?
+- Which is a great opportunity
+- Grope her ass
+- Grope the other buttcheek
+- Caress her
+- Rub it
+
+<br>
+<br>
+
 <!---
+
+## Home
+- idk
+- Im not going anywhere untill we clear this out(2d,-2f)
+Im not letting you out of my sight(2d,-2f)
+Sure, turn around and cover up(2d,-4f)
+whit all due respect... you are really hot(5f,3r)
+my cousin is a very luck...(3r,3f)
+easy there, there are a few more...
+not yet... Im curious(1d)
+hold her()
+keep holding her
+ok do it!(5r,5d)
+kiss her
+grab boobs(2r)
+pull your dick out
+grab her hand(3r,3d)
+push her further
+rub your dick(1r)
+rub it faster(1r)
+rub it faster(1r)
+rub it faster(1r)
+rub it faster(1r)
+Fuck her?
+
 
 fail:
 
