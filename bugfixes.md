@@ -1,4 +1,4 @@
-# Two Sides: Bug Fix Patch
+# Two Sides v0.08a: Bug Fix Patch
 [*\~My list of walkthroughs and when they'll be updated\~*](https://www.patreon.com/maimlain)
 
 <br>
