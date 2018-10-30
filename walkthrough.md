@@ -15,27 +15,6 @@
 <br>
 <br>
 
-## The Train - Part 1---v0.1 zzzzzzzz...........
-- So hot!
-- Not gonna happen
-- Look at the photo again
-- Jack off thinking about her
-- Daydream about her
-- Wash in the sink
-
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-
 ## The Train - Part 1
 - So hot!
 - Not gonna happen
